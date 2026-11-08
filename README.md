@@ -216,4 +216,4 @@ Really Big Sky is offered as a full free version, providing unrestricted access 
 Get ready to embark on your adventure! Download **Really Big Sky** now and protect Earth from alien invaders!
 
 ---
-**Last updated:** 2026-11-08 11:44:46 UTC
+**Last updated:** 2026-11-08 17:42:15 UTC
